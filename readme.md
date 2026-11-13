@@ -7,7 +7,6 @@ Senior WordPress Developer building custom plugins, WooCommerce solutions, and u
 -  Created multiple free and pro plugins.
 -  Exploring headless WordPress and AI integrations.
 -  Turning everyday website problems into practical tools.
--  Automating Boring stuffs, thanks to my adhd.
 
 
 ¯\_(ツ)_/¯ ------- (╯°□°）╯︵ ┻━┻
