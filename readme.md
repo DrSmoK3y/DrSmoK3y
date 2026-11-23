@@ -10,3 +10,9 @@ Senior WordPress Developer building custom plugins, WooCommerce solutions, and u
 
 
 ¯\_(ツ)_/¯ ------- (╯°□°）╯︵ ┻━┻
+
+
+- A mind that doesn't belong to this era,
+- Dreams that arrive before their time,
+- Heir to a thousand scattered paths,
+- Divinely cursed with the endless now.
