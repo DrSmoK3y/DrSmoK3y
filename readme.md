@@ -10,3 +10,5 @@ Senior WordPress Developer building custom plugins, WooCommerce solutions, and u
 
 
 ¯\_(ツ)_/¯ ------- (╯°□°）╯︵ ┻━┻
+
+I Came -  I Saw - I Amon
